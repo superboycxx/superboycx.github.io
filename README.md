@@ -1,1 +1,1 @@
-www.xdkslaba.top
+www.xdkslaba.to
